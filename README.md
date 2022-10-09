@@ -1,1 +1,0 @@
-# SIGCSE-2022_a11y_paper
